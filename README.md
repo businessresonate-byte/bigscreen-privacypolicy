@@ -61,4 +61,4 @@ You are advised to review this Privacy Policy periodically for any changes.
 
 If you have any questions about this Privacy Policy, you may contact us.
 
-Email: your-email@example.com
+Email: businessresonate@gmail.com
